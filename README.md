@@ -15,7 +15,6 @@ Here's some of my work :-
 - MEEST - https://apps.apple.com/in/app/meest/id1565768226
 
 ----
-- 💞️ I’m looking to collaborate on something challenging or simple (i mean, idk 🤷🏻‍♀️). Just out here exploring. 
 - 📫 Reach out singh.amandeep95@outlook.com
 
 <!---
